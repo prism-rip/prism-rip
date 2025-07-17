@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **luau/roblox**
 
-- 📫 How to reach me **@vaultik on Discord**
+- 📫 How to reach me **@prism.rip on Discord**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
